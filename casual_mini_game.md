@@ -1,0 +1,2 @@
+- **[Cake Match 3](https://funkiplay.com/en/game/cake-match3)** – Swap and match delicious pastries to create mouthwatering combos and power-ups. With escalating challenges, timed levels, and captivating visuals, this addictive puzzle game delivers endless sugary satisfaction for players ready to lose themselves in a delectably fun experience.  
+  > 🧁 **Why we love it**: A perfect game for casual moments — relaxing, fun, and satisfyingly sweet. Great for winding down or taking a quick break.
